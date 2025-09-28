@@ -2,7 +2,7 @@
 
 **`Web Developer | QA Analyst`**
 
-My name is Mariana Wagner, I am 21 years old, and I am originally from Santa Catarina, Brazil. I am currently studying Computer Science at the Community University of the Chapecó Region (UNOCHAPECO). I am passionate about technology and always strive to learn and share knowledge in this dynamic and innovative field.
+My name is Mariana Wagner, I am 22 years old, and I am originally from Santa Catarina, Brazil. I am currently studying Computer Science at the Community University of the Chapecó Region (UNOCHAPECO). I am passionate about technology and always strive to learn and share knowledge in this dynamic and innovative field.
 
 I invite you to visit my LinkedIn profile and connect with me. Let’s exchange ideas, share experiences, and create new opportunities together in the world of technology!
 
